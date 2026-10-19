@@ -1,4 +1,4 @@
-# Hi there! I'm aiien ithnain 👋
+# Hi there! I'm aiieen ithnain 👋
 
 **Computing Student | Web Developer**
 
